@@ -1,1 +1,2 @@
 # Scrum-Fundamentals-Certified-SFC
+[ACFrOgDck2DXzGkWZd_QZTtbraf0hCxxdptcHyIzBCzOmwCxE-Mg2zhkdns8YfReaRmNW2Yzg6i-MbpnDD0JYPTBot6GIcFha870YO3zaYnBznU40gccySDJk6JP-mmd0FF2WXn4KBECy9TiibTU.pdf](https://github.com/user-attachments/files/17927483/ACFrOgDck2DXzGkWZd_QZTtbraf0hCxxdptcHyIzBCzOmwCxE-Mg2zhkdns8YfReaRmNW2Yzg6i-MbpnDD0JYPTBot6GIcFha870YO3zaYnBznU40gccySDJk6JP-mmd0FF2WXn4KBECy9TiibTU.pdf)
